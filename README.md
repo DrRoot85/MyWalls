@@ -1,1 +1,0 @@
-### Some wallpapers for everyong.
